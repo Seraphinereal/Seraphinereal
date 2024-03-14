@@ -2,6 +2,6 @@
 - 😊 I’m interested in making games and being really cool and stuff
 - 🌱 I’m currently learning Lua and HTML
 - 📫 @seraphinereal on discord
-- ❤ Pronouns: She/Her
+- ❤ Pronouns: She/Her | https://en.pronouns.page/@SeraKitsune
 - also transgender, with some amount of autism, and silly
 - average github user
