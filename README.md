@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Seraphine
 - 😊 I’m interested in making games and being really cool and stuff
-- 🌱 I’m currently learning C++ and HTML
+- 🌱 I’m currently preparing for an internship and finishing up college work
 - 📫 @seraphinereal on discord
-- ❤ Pronouns: She/Her | https://en.pronouns.page/@SeraKitsune
-- also transgender, with some amount of autism, and silly
+- ❤ https://en.pronouns.page/@SeraKitsune
+- very silly goose
 - average github user
