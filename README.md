@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Seraphine
-- 😊 I’m interested in making games and being really cool and stuff
-- 🌱 I’m currently preparing for an internship and finishing up college work
+- 😊 I love expressing my creativity through the games I make.
+- 🌱 I’m currently finishing up a college internship.
 - 📫 @seraphinereal on discord
 - ❤ https://en.pronouns.page/@SeraKitsune
-- very silly goose
-- average github user
+- Learn more about me at the link above or below.
+- https://seraphinereal.github.io/
