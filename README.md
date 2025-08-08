@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Seraphine
 - 😊 I love expressing my creativity through the games I make.
-- 🌱 I’m currently finishing up a college internship.
+- 🌱 I’m currently updating my portfolio before searching for work!
 - 📫 @seraphinereal on discord
 - ❤ https://en.pronouns.page/@SeraKitsune
 - Learn more about me at the link above or below.
